@@ -1,1 +1,1 @@
-# Igreja-Pentecostal-O-Sol-da-Justi-a-
+# Igreja-Pentecostal-O-Sol-da-Justiça
